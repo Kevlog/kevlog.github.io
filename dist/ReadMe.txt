@@ -1,0 +1,1 @@
+Semua file dan folder di sini aku copy ke luar
